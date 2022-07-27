@@ -1,2 +1,2 @@
 # Exodus
-21st Century Digital Exodus (Unity with Mass Empowerments)
+21st Century Digital Global Exodus (Unity with Mass Empowerments)
